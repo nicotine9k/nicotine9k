@@ -59,4 +59,4 @@ It's you
 
   [rentry](https://rentry.co/nicotine9k) [interests](https://rentry.co/bloodlossnine) [atabook](https://nicotine99k.atabook.org/)
 
-<img src="https://files.catbox.moe/dx0ynx.jpg" width="450">
+<img src="https://files.catbox.moe/rqbc1v.png" width="450">
