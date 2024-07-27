@@ -1,7 +1,7 @@
 <div align="center">
 
 
-Fly, [broken](https://youtu.be/_PSjoVXFGAQ?si=PxdkDscHOvD_371q) wings 
+Cus I'm a [grinder](https://open.spotify.com/track/30taihgtVF9f77pu6aE1MC?si=01475052f6094f06), I get money for real 👅 
 
 
 
@@ -56,4 +56,4 @@ Fly, [broken](https://youtu.be/_PSjoVXFGAQ?si=PxdkDscHOvD_371q) wings
 
   [rentry](https://rentry.co/nicotine9k) [interests](https://rentry.co/bloodlossnine) [atabook](https://nicotine99k.atabook.org/)
 
-<img src="https://files.catbox.moe/rqbc1v.png" width="450">
+<img src="https://i.pinimg.com/564x/4d/a2/53/4da253a9bc406b1fd48ab14297e8f314.jpg" width="450">
