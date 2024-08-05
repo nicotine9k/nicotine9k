@@ -1,7 +1,7 @@
 <div align="center">
 
 
-A month later, we came to this conclusion: There was no such “beast” in the forest. 
+You don't love me but, you still don't leave [me](https://www.youtube.com/watch?v=e4_Mc_1SNQw&rco=1)
 
 
 
@@ -56,4 +56,4 @@ A month later, we came to this conclusion: There was no such “beast” in the 
 
   [rentry](https://rentry.co/nicotine9k) [interests](https://rentry.co/bloodlossnine) [atabook](https://nicotine99k.atabook.org/)
 
-<img src="https://files.catbox.moe/14f8zk.gif" width="450">
+<img src="https://files.catbox.moe/gu20z1.gif" width="450">
